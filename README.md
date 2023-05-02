@@ -1,0 +1,2 @@
+# Kolayl-k-
+Kolaylık 
